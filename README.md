@@ -1,2 +1,0 @@
-# DUAENMPRJCT1
-finalisasi
